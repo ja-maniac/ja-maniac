@@ -1,5 +1,5 @@
 # **HEY! I'M JAMANIA!**✌🏾
-<! Your next favorite designer 😏>
+Your next favorite designer 😏
 
 ## ABOUT ME
 
@@ -17,6 +17,6 @@
 
 ## 🤝 LIKE WHAT YOU SEE? LET'S CONNECT!
 
-- [![My LinkedIn](https://img.shields.io/badge/-LinkedIn-blue?style=flat-square&logo=linkedin)](https://www.linkedin.com/in/jamaniacolo/)
-- [![Website](https://img.shields.io/badge/-Website-green?style=flat-square&logo=google-chrome)](https://jamaniacolo.wixsite.com/portfolio)
+- [![My LinkedIn](https://i.pinimg.com/564x/ba/08/c4/ba08c4f71598c305c3294d588a955d73.jpg)](https://www.linkedin.com/in/jamaniacolo/)
+- [![Website](https://i.pinimg.com/564x/8a/d2/78/8ad2782d8b97a2d4f95951e9cf74eb3b.jpg)](https://jamaniacolo.wixsite.com/portfolio)
 
