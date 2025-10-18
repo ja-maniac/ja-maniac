@@ -13,8 +13,10 @@
 - Adobe Photoshop, Illustrator, Premiere Pro
 - Figma, Canva, HTML/CSS, Wix Website Builder
 - Graphic, Web, and Multimedia Design
+- Marketing! Marketing! Marketing!
 - Video Editing & Content Creation
 - Artificial Intelligence
+- Project Management
 
 ## 🤝 LIKE WHAT YOU SEE? LET'S CONNECT!
 
